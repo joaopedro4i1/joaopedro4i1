@@ -3,7 +3,7 @@
 - 🌱 estou interresado em aprender a programar novas linguagens
 - 👍eu estou aprendendo a programar recentemente a linguagem de JavaScript e Scratch
 
-![Typing GIF](https://gifdb.com/images/featured/vaporwave-mxa15mtookmrjlyk.gif)
+[!Typing GIF](https://gifdb.com/images/featured/vaporwave-mxa15mtookmrjlyk.gif)]
 
 
 
