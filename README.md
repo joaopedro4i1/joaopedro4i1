@@ -3,7 +3,7 @@
 - 🌱 estou interresado em aprender a programar novas linguagens
 - 👍eu estou aprendendo a programar recentemente a linguagem de JavaScript e Scratch
 
-![Typing GIF](https://media.tenor.com/iANHh2XaGF0AAAAM/qsmp-juanaflippa.gif)
+[![Typing GIF](https://media.tenor.com/iANHh2XaGF0AAAAM/qsmp-juanaflippa.gif)
 
 
 
