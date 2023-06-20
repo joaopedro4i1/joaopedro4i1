@@ -11,4 +11,4 @@ joaopedro4i1/joaopedro4i1 is a ✨ special ✨ repository because its `README.md
 You can click the Preview link to take a look at your changes.
 --->
 
-![Typing GIF](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgiphy.com%2Fexplore%2Flofi&psig=AOvVaw02j_HOr9Dc0tnSAX6Yhh0l&ust=1687348951125000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCIiKmenm0f8CFQAAAAAdAAAAABAH)
+![Typing GIF](https://gifdb.com/images/featured/vaporwave-mxa15mtookmrjlyk.gif)
