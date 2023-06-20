@@ -1,4 +1,4 @@
-![Typing GIF](https://media0.giphy.com/media/RMwgs5kZqkRyhF24KK/giphy.gif)
+![Typing GIF](https://media0.giphy.com/media/RMwgs5kZqkRyhF24KK/giphy.gif =1200x1200)
 
 
 - 👦 ola meu nome é ***@joaopedro4i1***
