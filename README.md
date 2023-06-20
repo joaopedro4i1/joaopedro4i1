@@ -6,7 +6,7 @@
 - 🌱 estou interresado em aprender a programar novas linguagens
 - 👍eu estou aprendendo a programar recentemente a linguagem de JavaScript e Scratch
 
-![Typing GIF](https://media.tenor.com/NriMDna69-gAAAAM/qsmp-richarlyson.gif)
+![Typing GIF](https://gifdb.com/images/featured/vaporwave-mxa15mtookmrjlyk.gif)
 
 
 
