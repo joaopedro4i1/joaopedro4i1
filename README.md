@@ -1,12 +1,13 @@
   ![Typing GIF](https://media0.giphy.com/media/RMwgs5kZqkRyhF24KK/giphy.gif)
 
 
-                                   - 👦 ola meu nome é ***@João Pedro Ilatchuk Kuc***
-                                   - 👌 meu email de contato é joao.kuc@escola.pr.gov.br meu e-mail pessoal é joaopedrokuc@gmail.com .
-                                   - 🧠 estou interresado em aprender a programar novas linguagens
-                                   - 🧑‍💻eu estou aprendendo a programar recentemente a linguagem de JavaScript e Scratch Html e css
+                              - 👦 ola meu nome é ***@João Pedro Ilatchuk Kuc***
+                              - 👌 meu email de contato é joao.kuc@escola.pr.gov.br meu e-mail pessoal é joaopedrokuc@gmail.com .
+                              - 🧠 estou interresado em aprender a programar novas linguagens
+                              - 🧑‍💻eu estou aprendendo a programar recentemente a linguagem de JavaScript e Scratch Html e css
 
-   ![Typing GIF](https://gifdb.com/images/featured/vaporwave-mxa15mtookmrjlyk.gif)
+  
+  ![Typing GIF](https://gifdb.com/images/featured/vaporwave-mxa15mtookmrjlyk.gif)
 
 
 
