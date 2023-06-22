@@ -1,4 +1,4 @@
-
+ ![Typing GIF](https://media.tenor.com/3Ld3qkxnrC8AAAAd/the-boys-a-train.gif)
 
 
                               - 👦 ola meu nome é ***@João Pedro Ilatchuk Kuc***
