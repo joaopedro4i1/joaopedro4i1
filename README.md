@@ -1,4 +1,4 @@
-  ![Typing GIF](https://media0.giphy.com/media/RMwgs5kZqkRyhF24KK/giphy.gif)
+
 
 
                               - 👦 ola meu nome é ***@João Pedro Ilatchuk Kuc***
