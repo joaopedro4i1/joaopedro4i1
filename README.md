@@ -1,3 +1,5 @@
+
+ 
  ![Typing GIF](https://media.tenor.com/3Ld3qkxnrC8AAAAd/the-boys-a-train.gif)
 
 
@@ -7,7 +9,7 @@
                               - 🧑‍💻eu estou aprendendo a programar recentemente a linguagem de JavaScript e Scratch Html e css
 
   
-  ![Typing GIF](https://gifdb.com/images/featured/vaporwave-mxa15mtookmrjlyk.gif)
+   ![Typing GIF](https://gifdb.com/images/featured/vaporwave-mxa15mtookmrjlyk.gif)
 
 
 
