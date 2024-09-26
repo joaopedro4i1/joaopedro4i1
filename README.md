@@ -2,7 +2,7 @@
 joaopedro4i1/joaopedro4i1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
- ![Typing GIF](https://gifdb.com/images/featured/vaporwave-mxa15mtookmrjlyk.gif)
+ ![Typing GIF](https://i.pinimg.com/originals/4a/ca/c0/4acac016e4fcd17a03f5129c9086b067.gif)
 
 ### Bem vindos ao meu perfil👋
 
